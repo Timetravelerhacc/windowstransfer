@@ -1,7 +1,3 @@
-### HOW TO CREATE VPS
-```
-> PLEASE INBOX TO www.facebook.com/danggiatuan.us
-```
 ### WARN
 
 THIS IS ONLY FOR EDUCATIONAL PURPOSES
